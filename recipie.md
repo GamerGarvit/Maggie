@@ -1,0 +1,1 @@
+boil water in a pan, add maggie masala , put the maggie in it and let it boil for 5-minutes, add the boiled vegetables , let it boil for two more minutes then switch off the stove knob and your maggie is ready to serve.
